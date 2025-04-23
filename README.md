@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lowbudgetvarga
-- 👀 I’m interested in zaza
+- 👀 I’m interested in programming
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on metro's new album
 - 📫 How to reach me @lowestbudget_varga
